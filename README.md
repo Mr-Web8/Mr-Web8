@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mr.WebB
-- 👀 I’m interested in coding/space/theorys
+- 👀 I’m interested in coding/space/theories
 - 🌱 I’m learning from exprience (basically expriencing and learn)
 - 🤭 love speaking to nerds and people i can learn from something new
 - 💞️ I’m looking to collaborate on anything where my intrest lays
